@@ -1,0 +1,2 @@
+# turki
+Qwertyuiop
